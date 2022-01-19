@@ -1,1 +1,1 @@
-# Hello I'm JinYoung
+# Hello I'm JinYoung and Hi
